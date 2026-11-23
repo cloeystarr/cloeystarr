@@ -1,13 +1,10 @@
 # Chloe Starr
 
-Writer + founder building [ompom.ai](https://ompom.ai).
+I make films, write, and build with AI.
 
-I'm interested in AI, context ownership, media, company building, fiction, anime, and what happens when humans with taste get much more powerful tools.
+[Work, ongoing projects & writing → chloestarr.me](https://chloestarr.me)
 
-Currently building a world where people own the context their AI runs on.
-
-→ [ompom.ai](https://ompom.ai)
-→ [chloestarr.me](https://chloestarr.me)
+[X](https://x.com/cloeystarr) · [Instagram](https://www.instagram.com/cloeystarr/) · [AI films & art](https://www.instagram.com/cloeystarrai/)
 
 ## Things I make
 
